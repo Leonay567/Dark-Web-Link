@@ -170,34 +170,10 @@ http://2okd3xv4nxsaturn.onion/
 http://ovgl57qc3a5abwqgdhdtssvmydr6f6mjz6ey23thwy63pmbxqmi45iid.onion/
 http://reycdxyc24gf7jrnwutzdn3smmweizedy7uojsa7ols6sflwu25ijoyd.onion/
 http://tape6m4x7swc7lwx2n2wtyccu4lt2qyahgwinx563gqfzeedn5nb4gid.onion/
-http://243vnzoix3ct6vowjgakv3pdqrzkfnkoz5plwgta3ar2onqobzhz5jid.onion/ucp.php?mode=register
-http://duq3tqhwuvghxskmq4g4y4bvn342ow76whgolrbbwf65wh7a6nez7iqd.onion/ucp.php?mode=register
-http://qmxem5wzk543ppqnyzxsmow2jggexesk2mnzphd5ecnsope4befch5yd.onion/viewtopic.php?id=48987
-http://qmxem5wzk543ppqnyzxsmow2jggexesk2mnzphd5ecnsope4befch5yd.onion/viewtopic.php?id=40905
-http://qmxem5wzk543ppqnyzxsmow2jggexesk2mnzphd5ecnsope4befch5yd.onion/viewtopic.php?pid=760955
-tanktopmaster
-reknunakko@yevme.com
-#Tank-1234
-l
+http://243vnzoix3ct6vowjgakv3pdqrzkfnkoz5plwgta3ar2onqobzhz5jid.onion/
+http://duq3tqhwuvghxskmq4g4y4bvn342ow76whgolrbbwf65wh7a6nez7iqd.onion/
+http://qmxem5wzk543ppqnyzxsmow2jggexesk2mnzphd5ecnsope4befch5yd.onion/
 http://anoncatkratzg5xmvqtybghhp2ho5pwrhgixja64pt7t3ehvwtr5fzqd.onion/signin
-kategawa kate-1234
-mnemonic
-
-http://45.84.1.55
-
-username dan password untuk dark web
-kategawa101
-#Kate-1234
-
-Email Dark Web
-
-Secmail
-kategawa@secmail.pro
-kate-1234
-
-Mail2Tor
-zusyaku_01@mail2tor.com
-zusyaku-4869
 
 https://deepwebsiteslinks.com/
 https://darkweblinks.com/
@@ -232,20 +208,10 @@ http://reycdxyc24gf7jrnwutzdn3smmweizedy7uojsa7ols6sflwu25ijoyd.onion/
 http://tape6m4x7swc7lwx2n2wtyccu4lt2qyahgwinx563gqfzeedn5nb4gid.onion/
 
 http://okm5wpuh4hmuj4vcy7i72r7uumwwfmgeqjgy7b6qecv2aflaopqvfdad.onion/
-http://qmxem5wzk543ppqnyzxsmow2jggexesk2mnzphd5ecnsope4befch5yd.onion/
-zetrosclay ztx123
-
-https://protonirockerxow.onion/
-zetros666@protonmail.com
-ztx-4869
-
+http://qmxem5wzk543ppqnyzxsmow2jggexesk2mnzphd5ecnsope4befch5yd.onion
+https://protonirockerxow.onion
 http://mail2tor2zyjdctd.onion/
-zetros666@mail2tor.com
-ztx-4869
-
-
 https://protonirockerxow.onion/login
-
 http://mail2tor2zyjdctd.onion
 voltarox@mail2tor.com
 volta-1234
@@ -271,13 +237,8 @@ http://s4k4ceiapwwgcm3mkb6e4diqecpo7kvdnfr5gg7sph7jjppqkvwwqtyd.onion/
 http://zqktlwiuavvvqqt4ybvgvi7tyo4hjl5xgfuvpdf6otjiycgwqbym2qad.onion/wiki/index.php/Main_Page
 
 http://ter5zlptmg6ljki2k22wjnwwxbgeajirr7af6jvtq2pdbfh5usmjdvqd.onion/
-kategawa 
-kate-1234 486914
 
 http://torbox36ijlcevujx7mjb4oiusvwgvmue7jfn2cvutwa6kl6to3uyqad.onion/mbx/users/login.php
-kategawa@torbox3uiot6wchz.onion
-kate-1234
-
 http://nk3k2rsitogzvk2a.onion/
 
 password 
