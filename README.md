@@ -255,6 +255,86 @@ Western District
 http://v4t3ogtrdoe6ozkn.onion/
 
 
+MARKET DARK WEB
+http://alien6xmiqsolihg5wu3n6skdazfor6i4gfi4vfclqt2caga5crygzid.onion/
+Category: Drugs
+
+///////////
+http://alien6xmiqsolihg5wu3n6skdazfor6i4gfi4vfclqt2caga5crygzid.onion/
+\\\\\\\\\\\
+
+BEST MARKET
+http://alien6xmiqsolihg5wu3n6skdazfor6i4gfi4vfclqt2caga5crygzid.onion/
+Category: Wiki
+
+///////////
+DARK WEB
+\\\\\\\\\\\
+
+Original Apple products.
+http://appllkccqdmhirvvzebkxsffwvpszk3axdcgcmwrt3uik2jduucacmqd.onion/
+Category: Electronics
+
+///////////
+Original Apple products. All products are in their original packaging and have warranty cards
+\\\\\\\\\\\
+
+Hidden Cards
+http://nhkotz23d7zbxbdjupg4rptjzcaruqwx2qy7qwtby3hon5rr4yaddfqd.onion/
+Category: Carding
+
+///////////
+Prepaid debit cards
+\\\\\\\\\\\
+
+Cryptonium
+http://imzcxx5a3xwrp3yaorwsuuqhhat3zxw3hqiyn3z2frgtaflhdbt5omad.onion
+Category: Cryptocurrency
+
+///////////
+cryptocurrency wallets
+\\\\\\\\\\\
+
+Black Market CC
+http://imjxsmcdedgtljeqip5vmqjepruvlip2xstuos5phwsrp3ka3znzn2ad.onion
+Category: Money Transfers
+
+///////////
+Prepaid Cards, PayPal and WU transfers
+\\\\\\\\\\\
+
+CLAY – HACKING SERVICES
+http://zuf7xa6ut5cbwxkmirslyb7g3wcrklkdukgvpyw37uqbo7igbvbkbnqd.onion/hacking_services.html
+Category: Hacking
+
+///////////
+HACKING SERVICES
+\\\\\\\\\\\
+
+Buy Cocaine with Delivery. Escrow accepted here. C
+http://e7xutgiri67xistbxllnimfs4ic7pjqxmiincdlu6azqxvl2w4h5qwqd.onion
+Category: Drugs
+
+///////////
+Buy HQ Cocaine in your city. Worldwide delivery. Delivered or reship. Good price. Many satisfied customers. Safe deal.
+\\\\\\\\\\\
+
+Buy Documents Online
+http://dck2o6ccxr6vp3vtjrqvw2h4qjo2mwd54je6dgztvjhaks7c6z7vsmad.onion/
+Category: Forum
+
+///////////
+Buy Documents Online
+\\\\\\\\\\\
+
+Where To Obtain Documents Online
+http://dck2o6ccxr6vp3vtjrqvw2h4qjo2mwd54je6dgztvjhaks7c6z7vsmad.onion/
+Category: Wiki
+
+///////////
+Where To Obtain Documents Online
+\\\\\\\\\\\
+
 
 Football Kingdom
 http://puxhoat3zc6c67axjenhd772tikbzioyjfdeh5v4muvfoik2iwlns5ad.onion
